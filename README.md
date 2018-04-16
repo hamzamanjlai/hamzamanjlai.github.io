@@ -1,1 +1,0 @@
-# hamzamanjlai.github.io
